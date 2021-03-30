@@ -1,4 +1,4 @@
-# What happend with Julia
+# What happened with Julia
 
 I had ultimately done it, I had ultimately got my partner Julie to locate an enthusiast and cuckold me. She started viewing the internet for [cuckold Porn compilation Clips](https://wifesharingvideos.com/compilation/) sites as well as online forums. Julie is 28 as well as I am 31 Julie's in a size 14 gown as well as has 36c breasts she has great contours and has a limited arse and pussy. On Wednesday night she told me that she had discovered a person to meet. Julie informed me that we were going to a Caravan park for a weekend break away and also she would be meeting up with him on the Saturday evening, alone at the club. She said there were some conditions connected.
 
